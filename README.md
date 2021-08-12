@@ -1,4 +1,4 @@
-### Hi there 👋😼
+### Hello there 👋😼
 ## Oiii! Eu sou Alycia Vukan
 <div>
   <a href="https://github.com/alyciavukan">
